@@ -1,4 +1,4 @@
 * Tae Park
-* (insert picture here)
+* ![;)](http://imgur.com/FLm0uHZ)
 * 2018
 * Games
